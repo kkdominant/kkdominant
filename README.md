@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kkdominant
-- 👀 I’m interested in play King of glory
+- 👀 I’m interested in playing King of glory
 - 🌱 I’m currently learning  machine learning.
 - 💞️ I’m looking to collaborate on  
 - 📫 How to reach me 
